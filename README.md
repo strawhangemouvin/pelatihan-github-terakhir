@@ -9,7 +9,7 @@ Kesibukan aku saat ini
 - Joki Tugas
 - Mencari kesibukan intinya
 
-[Instagram Aku] (www.instagram.com/jokitugas_bymnc?igsh=MWtjZTR1eG5zbHV5OA%3D%3D)
+[Instagram Aku](www.instagram.com/jokitugas_bymnc?igsh=MWtjZTR1eG5zbHV5OA%3D%3D)
 
 ![Photo Aku](https://id.pinterest.com/pin/16536723627566210/)
 
